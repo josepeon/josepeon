@@ -2,7 +2,7 @@
 The future of e-commerce, today.
 
 [NOOON ONLINE](https://nooon.online)  
-Fashion engineering. Designed in New York.
+Fashion engineering.
 
 [OH DIRECTORY](https://directory.o-h.systems)  
 Selected work across campaigns, e-commerce, motion and spatial.
