@@ -5,7 +5,7 @@ The future of e-commerce, today.
 Fashion engineering. Designed in New York.
 
 [OH DIRECTORY](https://directory.o-h.systems)  
-Independent design and web studio, New York. Campaigns, e-commerce, motion and spatial.
+Selected work across campaigns, e-commerce, motion and spatial.
 
 [AI ENGINEERING](https://josepeon.co)  
 AI engineer portfolio.
