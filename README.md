@@ -1,14 +1,9 @@
-### [OH SYSTEMS :: \[EXP\]](https://o-h.systems)
-Spatial experiences, in-world commerce, and O-OH — the voice AI you can talk to on the site.
+### [OH SYSTEMS :: \[THE FUTURE OF E-COMMERCE, TODAY\]](https://o-h.systems)
 
-### [NOOON ONLINE :: \[EXP\]](https://nooon.online)
-The in-house fashion label where OH proves its systems first.
+### [NOOON ONLINE :: \[FASHION ENGINEERING — DESIGNED IN NEW YORK\]](https://nooon.online)
 
-### [OH DIRECTORY :: \[EXP\]](https://directory.o-h.systems)
-Every project on one zoomable board — 28 builds across 6 brands, 2023–2026.
+### [OH DIRECTORY :: \[SELECTED CLIENT WORK — CAMPAIGNS, E-COMMERCE, MOTION AND SPATIAL\]](https://directory.o-h.systems)
 
-### [AI ENGINEERING :: \[EXP\]](https://josepeon.co)
-AI engineering portfolio — agents, voice pipelines, and the resume.
+### [AI ENGINEERING :: \[AI ENGINEER PORTFOLIO\]](https://josepeon.co)
 
-### [VISUAL PROCESSES :: \[EXP\]](https://josepeon.com)
-Fashion engineering and 3D design — garments, worlds, and visual work.
+### [VISUAL PROCESSES :: \[3D DESIGN, DIGITAL INTEGRATION, GARMENT CONSTRUCTION\]](https://josepeon.com)
