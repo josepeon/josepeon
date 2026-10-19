@@ -1,9 +1,14 @@
-### [OH SYSTEMS :: \[THE FUTURE OF E-COMMERCE, TODAY\]](https://o-h.systems)
+### [OH SYSTEMS](https://o-h.systems)
+The future of e-commerce, today.
 
-### [NOOON ONLINE :: \[FASHION ENGINEERING — DESIGNED IN NEW YORK\]](https://nooon.online)
+### [NOOON ONLINE](https://nooon.online)
+Fashion engineering. Designed in New York.
 
-### [OH DIRECTORY :: \[SELECTED CLIENT WORK — CAMPAIGNS, E-COMMERCE, MOTION AND SPATIAL\]](https://directory.o-h.systems)
+### [OH DIRECTORY](https://directory.o-h.systems)
+Independent design and web studio, New York. Campaigns, e-commerce, motion and spatial.
 
-### [AI ENGINEERING :: \[AI ENGINEER PORTFOLIO\]](https://josepeon.co)
+### [AI ENGINEERING](https://josepeon.co)
+AI engineer portfolio.
 
-### [VISUAL PROCESSES :: \[3D DESIGN, DIGITAL INTEGRATION, GARMENT CONSTRUCTION\]](https://josepeon.com)
+### [VISUAL PROCESSES](https://josepeon.com)
+3D design, digital integration, garment construction.
